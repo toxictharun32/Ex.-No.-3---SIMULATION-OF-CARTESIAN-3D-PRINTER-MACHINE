@@ -54,7 +54,7 @@
 ![image](https://github.com/user-attachments/assets/761e9802-46c9-46c4-b6ce-2839ffc116f4)
 ![image](https://github.com/user-attachments/assets/b25ee894-8e32-4bd6-b19c-11bdbe547ef8)
 
-### Name: Tharun.B
+### Name: THARUN B
 ### Register Number:24002876
 
 ## Result: 
